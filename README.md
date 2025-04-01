@@ -1,4 +1,4 @@
-## Hewwo -.-
+## Hi there 👋, I'm Ivar
 🎓 MSc in Media Technology, AI and Engineering
 
 ## 🌐 Socials:

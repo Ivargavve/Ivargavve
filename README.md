@@ -1,4 +1,4 @@
-# 💫 About Me:
+## Hewwo -.-
 🎓 MSc in Media Technology, AI and Engineering
 
 ## 🌐 Socials:
